@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vica000
-- 👀 I’m interested in single-game
+- 👀 I’m interested in playing game,especially otome and RPG:P
 -...Maybe sometimes I will draw what I am interested in
 - 🌱 I’m currently learning C# and Unity
 - 💞️ I’m looking to collaborate on ...I don't know
